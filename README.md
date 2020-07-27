@@ -4,10 +4,15 @@ Known as TechFanciers
 I am a late 19's born Information Technology Graduate and currently working as System Engineer.
 
 *Minimalist
+
 *Spritual
+
 *Geeky and Techky
+
 *Youtuber and Content Creator
+
 *Programmer
+
 *Budget Consumer
 
 # I will be available in below handles.,
